@@ -8,10 +8,12 @@ Sᴘᴇcɪᴀʟ Tʜᴀɴᴋs Tᴏ :
 
 Tʜᴀɴᴋs Tᴏ :
 - Darma™♪
+- Pebb™♪
 - IGoy™♪
 - Agungnur.y™♪
 
 Sᴜᴘᴘᴏʀᴛᴇᴅ ʙʏ :
+ • MiBots™♪
  • NoiBots™♪
  • Release™♪
  • SentinelCorps™♪
