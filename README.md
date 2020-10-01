@@ -20,7 +20,7 @@ Simple Public Bots Fixed by Ressync™♪
 - SentinelCorps™♪ 
 - LeadershipCorps™♪ 
 - HigherBrotherTeam™♪ 
-- ExecllentsTeamBots™♪ 
+- Execllents Team Bots™♪ 
 - and All of My Friends :)   
 
 ©2020 By MPC♪
