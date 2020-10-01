@@ -2,19 +2,19 @@
 Simple Public Bots Fixed by Ressync™♪ 
 
 
-Special Thanks to :
+> Special Thanks to :
 - Ibal™♪
 - Uwewww™♪
 - Yhzkl Bagas
 
 
-Thanks to :
+> Thanks to :
 - Darma™♪
 - IGoy™♪
 - Agungnur.y™♪
 
 
-Supported by : 
+> Supported by : 
 - NoiBots™♪ 
 - Release™♪ 
 - SentinelCorps™♪ 
