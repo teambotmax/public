@@ -2,10 +2,12 @@
 > Simple Public Bots Fixed by Ressync™♪ 
 
 
+
 Special Thanks to :
 - Ibal™♪
 - Uwewww™♪
 - Yhzkl Bagas
+
 
 
 Thanks to :
