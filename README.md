@@ -1,5 +1,5 @@
 # public-linepy
-Simple Public Bots Fixed by Ressync™♪ 
+> Simple Public Bots Fixed by Ressync™♪ 
 
 
 > Special Thanks to :
@@ -14,4 +14,4 @@ Simple Public Bots Fixed by Ressync™♪
 - Agungnur.y™♪
 - and All of My Friends :)   
 
-©2020 By MPC♪
+> ©2020 By MPC♪
