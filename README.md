@@ -1,23 +1,23 @@
 # public-linepy
 Simple Public Bots Fixed by Ressync™♪ 
 
-Sᴘᴇcɪᴀʟ Tʜᴀɴᴋs Tᴏ :
+Special Thanks to :
 - Ibal™♪
 - Uwewww™♪
 - Yhzkl Bagas
 
-Tʜᴀɴᴋs Tᴏ :
+Thanks to :
 - Darma™♪
 - IGoy™♪
 - Agungnur.y™♪
 
-Sᴜᴘᴘᴏʀᴛᴇᴅ ʙʏ : 
-• NoiBots™♪ 
-• Release™♪ 
-• SentinelCorps™♪ 
-• LeadershipCorps™♪ 
-• HigherBrotherTeam™♪ 
-• ExecllentsTeamBots™♪ 
-• and All of My Friends :)   
+Supported by : 
+NoiBots™♪ 
+- Release™♪ 
+- SentinelCorps™♪ 
+- LeadershipCorps™♪ 
+- HigherBrotherTeam™♪ 
+- ExecllentsTeamBots™♪ 
+- and All of My Friends :)   
 
 ©2020 By MPC♪
