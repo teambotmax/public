@@ -1,18 +1,21 @@
 # public-linepy
 Simple Public Bots Fixed by Ressync™♪ 
 
+
 Special Thanks to :
 - Ibal™♪
 - Uwewww™♪
 - Yhzkl Bagas
+
 
 Thanks to :
 - Darma™♪
 - IGoy™♪
 - Agungnur.y™♪
 
+
 Supported by : 
-NoiBots™♪ 
+- NoiBots™♪ 
 - Release™♪ 
 - SentinelCorps™♪ 
 - LeadershipCorps™♪ 
